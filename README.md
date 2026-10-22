@@ -11,7 +11,7 @@ Live site: GitHub Pages (see repository Settings > Pages).
 ## Contact
 - Booking email: marriagebreakfastdailymenu@gmail.com
 - Telegram: https://t.me/marriagebreakfastdailymenu
-- Instagram: https://www.instagram.com/marriagebreakfastdm
+- Instagram: https://www.instagram.com/marriagebreakfastdailymenu 
 - TikTok: https://www.tiktok.com/@marriagebreakfastdailymenu
 - Facebook: https://www.facebook.com/marriagebreakfastdailymenu
 - WhatsApp community: https://chat.whatsapp.com/KXtlXxPYbQjAE1HKnjaOWk
